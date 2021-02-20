@@ -1,3 +1,8 @@
+## Support Info
+
+You can reach me from facebook messenger: https://m.me/se.hasanciftci/
+You can reach me from mail: se.hasanciftci@gmail.com
+
 ## SLS Privacy Policy
 
 Privacy Policy for our app
